@@ -1,5 +1,14 @@
 John Chifodya
 
+Cisco Certified CCNA,CCNP
+Microsoft Azure 
+Fortigate NSE4 Certifed
+Juniper Certified JNCIA,JNCCA,JNCSA
+Ubiquiti Certified
+CompTIA Certified A+N+S+
+Farsouth Networks
+Yeastar Certified 
+
 Unit E2 Stepney Green Complex 
 Parklands, Western Cape
 7441
